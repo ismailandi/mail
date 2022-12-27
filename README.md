@@ -1,0 +1,2 @@
+# mail
+Allah selalu bersamaku
